@@ -18,7 +18,7 @@ ___
 
 тртртр:
 1.                         трир;
-2. тририр.  
+2. &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;тририр.  
 ппмпмппм
 
 ололлло
